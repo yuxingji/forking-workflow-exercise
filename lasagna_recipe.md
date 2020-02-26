@@ -1,0 +1,3 @@
+- Prepare ingredients
+- Mix and take it to the oven
+- Eat
